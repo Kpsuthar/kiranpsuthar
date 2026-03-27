@@ -18,4 +18,4 @@
 To secure an entry-level role where I can apply my programming and data analytics skills while continuously learning and growing in the IT industry.
 
 ### 📫 Connect with Me
-- LinkedIn: https://www.linkedin.com/in/your-profile
+- LinkedIn: https://www.linkedin.com/in/kiran-p-suthar-8714a4297/
